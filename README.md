@@ -1,4 +1,4 @@
-## this Github Account belongs to the Maniya Devagn
+## this Github Account belongs to Maniya Devagn
 Use for hosting the code for apps 
 any query contact   
   **devagnmaniya611@gmail.com**
